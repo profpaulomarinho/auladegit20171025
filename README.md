@@ -5,4 +5,7 @@ Aula de git 05 02 2018
 
 aula de git 5-1-18
 
-asdjhgsakjhdgsakjhdsa gfds
+Vamos deixar direitinho né?!
+
+
+Que Goku nos salve!
